@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @yngshotty
+- 👀 I’m studying mechanical engineering
+- 🌱 I’m interested in learning coding on the side
+- 💞️ I’m looking to collaborate on cool projects
+- 📫 How to reach me shokhin@udel.edu
+- ⚡ Fun fact: favorite color green 🇬🇱
